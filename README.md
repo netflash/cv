@@ -1,6 +1,6 @@
 # Alex Romanov
 
-If you hit this page you might be interesting about me, huh ?
+If you hit this page you might be interested about me, huh ?
 
 Below are some details which could shed some light about my professional skills:
 
